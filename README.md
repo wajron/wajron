@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wajron
+- 👋 Hi, I’m @Wajron
 - 👀 I’m interested in cars
 - 🌱 I’m currently learning mechanic school
 - 💞️ I’m looking to collaborate on nothing.
